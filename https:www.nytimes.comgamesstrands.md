@@ -12,3 +12,14 @@ lint: a) short, fine fibres which separate from the surface of cloth or yarn dur
 b) a fabric, originally of linen, with a raised nap on one side, used for dressing wounds.
 
 tole: painted, enamelled, or lacquered tin plate used to make decorative domestic objects.
+
+
+
+
+
+
+Strands #156
+“Bed, bath and beyond”
+💡🔵💡🔵
+💡🔵💡🔵
+🟡🔵
